@@ -15,6 +15,6 @@
   Mumbai, Maharashtra, India.
     
 ## Follow Me On<br>
-  [Instagram](https://www.instagram.com/omi_atugade)
-  [Facebook](https://www.facebook.com/Omkar Atugade)
+  [Instagram](https://www.instagram.com/omi_atugade)<br>
+  [Facebook](https://www.facebook.com/Omkar Atugade)<br>
   [Twitter](https://www.twitter.com/Atugade-Omkar)
